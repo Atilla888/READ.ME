@@ -1,1 +1,5 @@
-# READ.ME
+- 😎 I'm a digital nomad.
+- 🚀 I am currently on my first year studying Software-Engineering.
+- 💡 Most of the time I'm studying my degree and learning the skills for the Blockchain Development.
+- ✏️ Aiming towards the top of the web 3.0
+- ⚡️ Future starts today
